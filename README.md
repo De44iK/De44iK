@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **denispodolkhov@gmail.com**
 
-- ⚡ Fun fact **Computer eventually started doing things:))**
+- ⚡ Fun fact **Computer eventually started doing things -->>**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
